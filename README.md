@@ -38,7 +38,7 @@ GODLY (Album) — Stream on Spotify✨ Reborn (Album Project) — Featuring hits
 
 
 
-🔗 STREAM & FOLLOW PRINCESS LAVENE Support independent hip-hop. Lock in early, follow the official accounts, and be ready for the drop. 
+🔗 STREAM & FOLLOW PRINCESS LAVENE Support The independent hip-hop Artist Lock in early, follow the official accounts, and be ready for the drop. 
 [1]
 (https://open.spotify.com/artist/23ReJJ4hfu2EWL4nFbeifW), 
 
