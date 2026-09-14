@@ -4,7 +4,11 @@ PRINCESSLAVENE//OFFICIAL WEBSITE  •
 [ DISCOGRAPHY ]  • 
 [ CONTACT ]
 
-:https://shorturl.at/ZhLmb   Pre-order the exclusive physical vinyl and CDs below to secure your copy before they sell out. Here :https://shorturl.at/ZhLmb 
+  
+  
+  
+ 
+  Pre-order the exclusive physical vinyl and CDs below to secure your copy before they sell out. Here :https://shorturl.at/ZhLmb 
 [1] (https://open.spotify.com/artist/23ReJJ4hfu2EWL4nFbeifW)🛒 EXCLUSIVE PRE-ORDERS (VINYL & CD)
 <img width="1080" height="1419" alt="Screenshot_20231215-150902" src="https://github.com/user-attachments/assets/2672c8d5-14ee-417a-8894-49eaa9ff391f" />
 
@@ -19,7 +23,10 @@ Stream Princess Lavene's official releases while you wait for the new project to
 
 GODLY (Album) — Stream on Spotify✨ Reborn (Album Project) — Featuring hits like Remember, Banger, My Time, and Hop In. [1] (https://open.spotify.com/intl-ar/album/7bIyV7kxcXpq20XvAuexgL), [
 
-2] (https://open.spotify.com/artist/23ReJJ4hfu2EWL4nFbeifW)Hit Singles❄️ Ice No Kingdom / Ice No Kingdom (Extended Remix)🌍 WORLD STAR ONLY ME🎃 Spooky🍀 LUCKY CLOVER🙇‍♀️ Bow Down [1] (https://open.spotify.com/album/0fCepWEdO0zkQ8ofbJ8ewv)
+2] (https://open.spotify.com/artist/23ReJJ4hfu2EWL4nFbeifW)Hit Singles❄️ Ice No Kingdom / Ice No Kingdom (Extended Remix)🌍 WORLD STAR ONLY ME🎃 Spooky🍀 LUCKY CLOVER🙇‍♀️ Bow Down [1] 
+(https://open.spotify.com/album/0fCepWEdO0zkQ8ofbJ8ewvalt="Screenshot_20231215-150902" src="https://github.com/user-attachments/assets/2672c8d5-14ee-417a-8894-49eaa9ff391f" />
+
+
 
 🔗 STREAM & FOLLOW PRINCESS LAVENE Support independent hip-hop. Lock in early, follow the official accounts, and be ready for the drop. 
 [1]
