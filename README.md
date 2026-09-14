@@ -8,14 +8,16 @@ PRINCESSLAVENE//OFFICIAL WEBSITE  •
   
   
  
-  Pre-order the exclusive physical vinyl and CDs below to secure your copy before they sell out. Here :https://shorturl.at/ZhLmb 
+ 
 [1] (https://open.spotify.com/artist/23ReJJ4hfu2EWL4nFbeifW)🛒 EXCLUSIVE PRE-ORDERS (VINYL & CD)
 <img width="1080" height="1419" alt="Screenshot_20231215-150902" src="https://github.com/user-attachments/assets/2672c8d5-14ee-417a-8894-49eaa9ff391f" />
 
 O
-🚨 PRE-ORDER NEXT ALBUM: "EIGHT NUMBER"The Highly Anticipated 8-Track Project From Princess Lavene🗓️ DROPPING WORLDWIDE: NOVEMBER 1, 2026  🎵 Pre-Save Now  OFFICIAL WEBSITE  •
-be the first to own the physical history. Pre-orders are open now and ship worldwide to arrive by launch day.Limited Edition Vinyl 🎨12" Heavyweight gatefold vinyl. I.[ PRE-ORDER VINYL ]COMING SOON
-Compact Disc (CD) 💿Jewel case edition with full-color insert artwork.[ PRE-ORDER CD ]Official Launch Apparel 👕"Eight Number" limited pre-order graphic streetwear tees and hoodies Coming Soon [ PRE-ORDER MERCH ]💿  THE DISCOGRAPHY<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/320b2918-41d9-4c2d-af57-7d6550b68605" />
+🚨 PRE-ORDER NEXT ALBUM: "EIGHT NUMBER"The Highly Anticipated 8-Track Project From Princess Lavene🗓️ DROPPING WORLDWIDE: NOVEMBER 1, 2026  🎵 Pre-Save Now  Here  •   Here :https://shorturl.at/ZhLmb
+be the first to own the physical history. Pre-orders are open now and ship Virtally worldwide to arrive Same Day  
+Limited Edition Vinyl 🎨12" Heavyweight gatefold vinyl. I.[ PRE-ORDER VINYL ]COMING SOON
+Compact Disc (CD) 💿Jewel case edition with full-color insert artwork.[ PRE-ORDER CD ]Official Launch Apparel 👕"Eight Number" limited pre-order graphic streetwear tees and hoodies Coming Soon
+[ PRE-ORDER MERCH ]COMING SOON 💿  THE DISCOGRAPHY<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/320b2918-41d9-4c2d-af57-7d6550b68605" />
 
 
 
@@ -40,7 +42,7 @@ GODLY (Album) — Stream on Spotify✨ Reborn (Album Project) — Featuring hits
 
 
 
-📝 ABOUT PRINCESS LAVENE is a rising rap artist carving out a distinct lane in the music industry. Known for sharp lyricism, hypnotic beats, and a commanding presence, her catalog spans celebrated albums like "BILLION DOLLAR" and "GODLY".
+📝 ABOUT PRINCESS LAVENE is a rising rap artist carving out a distinct lane in the music industry. Known for sharp lyricism, hypnotic beats, and a commanding presence, her catalog spans celebrated albums like "BILLION DOLLAR" and "GODLY".<img width="1080" height="1419" alt="Screenshot_20231215-150902" src="https://github.com/user-attachments/assets/2672c8d5-14ee-417a-8894-49eaa9ff391f" />
 
 Arriving November 1, 2026, her upcoming 8-track album "Eight Number" bridges digital streaming hype with high-end physical turntable wax for true heads of modern hip-hop.
 
