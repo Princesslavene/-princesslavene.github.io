@@ -7,7 +7,13 @@ PRINCESSLAVENE//OFFICIAL WEBSITE  •
   
   
   
- 🚨 PRE-ORDER NEXT ALBUM: "EIGHT NUMBER"The Highly Anticipated 8-Track Project From Princess Lavene🗓️ DROPPING WORLDWIDE: NOVEMBER 1, 2026  🎵 Pre-Save Now  Here  •   Here :https://shorturl.at/ZhLmb
+ 
+ 
+ 
+ 
+ 🚨 PRE-ORDER NEXT ALBUM: "EIGHT NUMBER"The Highly TAlked About 8-Track Project From Princess Lavene🗓️ DROPPING WORLDWIDE: NOVEMBER 1, 2026  🎵 Pre-Save Now  Here  •   
+ 
+ Here :https://shorturl.at/ZhLmb
 be the first to own the physical history. Pre-orders are open now and ship Virtally worldwide to arrive Same Day  
 Limited Edition Vinyl 🎨12" Heavyweight gatefold vinyl. I.[ PRE-ORDER VINYL ]COMING SOON
 Compact Disc (CD) 💿Jewel case edition with full-color insert artwork.[ PRE-ORDER CD ]Official Launch Apparel 👕"Eight Number" limited pre-order graphic streetwear tees and hoodies Coming Soon
